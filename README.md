@@ -4,3 +4,4 @@
 
 
 * [집렌탈](https://www.forrentuniversity.com/University-of-Nebraska-Lincoln-Lincoln-Campus?bounds=40.86104283004419,40.75358869956158,-96.5904806833047,-96.78648310706798)
+* [링컨한인장로교회] (http://www.kpclnk.org/xe/Album/53390)
